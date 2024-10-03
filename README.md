@@ -1,1 +1,1 @@
-# hi gays
+# hi people
